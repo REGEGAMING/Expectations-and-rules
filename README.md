@@ -1,0 +1,2 @@
+# Expectations-and-rules
+Expectations       Each member must carry themselves as a respected individual. Each member will be expected to interact with fans or viewers in some way shape or form. Rules If there is a problem or conflict amongst members tell an admin! Do not under any circumstances handle it yourself. It is a work environment so treat it like one. (Comp and member meetings) Have fun and always come to compete!!
